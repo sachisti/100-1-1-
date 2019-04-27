@@ -1,2 +1,3 @@
-# 100-1-1-
-Stopár Istrobot 2019++
+Tim Sachisti, Robot 100(1+1)
+
+z kategorie Stopár / Istrobot 2019++
